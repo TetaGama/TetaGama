@@ -1,4 +1,4 @@
-- I am Aditya Toleti
+- Aditya Toleti
 
 - 📫 contact me through "adityatoleti@outlook.in"
 
