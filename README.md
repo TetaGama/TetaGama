@@ -1,3 +1,3 @@
 - Aditya Toleti
 
-- 📫 contact me through "adityatoleti@outlook.in"
+- 📫 contact me through "adityatoletii@gmail.com"
